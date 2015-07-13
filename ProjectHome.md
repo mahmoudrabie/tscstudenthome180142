@@ -1,0 +1,1 @@
+Check grades, attendance, or even the lunch menu right from your mobile phone.
